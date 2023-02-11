@@ -1,3 +1,7 @@
-### 노동경제학회 토론 자료 (2023년 2월 2일)
-https://jasper-year-9a0.notion.site/2023-8d2f18162f534364a829f5621f977455
+## QAE OT
 
+### 경제데이터분석입문 (2022S)
+https://jasper-year-9a0.notion.site/QAE-2022S-4116ee04c5c347db85aca3da65832b97
+
+### QAE 노동시장과 빅데이터 분석 (2022F)
+https://jasper-year-9a0.notion.site/QAE-2022F-19219bdbc2424ae4b03f69ee03fcffc3
