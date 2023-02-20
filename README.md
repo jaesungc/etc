@@ -1,8 +1,3 @@
-## GE OT
-https://skkuge.notion.site/GE-OT-2efa7523e29b4f6fa92b1a2466a1013f
-
-<br>
-
 ## QAE OT
 
 ### 경제데이터분석입문 (2022S)
