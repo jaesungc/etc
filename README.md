@@ -9,3 +9,6 @@ https://skku0-my.sharepoint.com/:f:/g/personal/jaesungc_skku_edu/EqjLmipnUdtJmhL
 
 ### Link to Datat
 https://skku0-my.sharepoint.com/:u:/g/personal/jaesungc_skku_edu/EZ_FCoVwSu1IrRK8mk9axrEB_rIKWalWT7k175wvY8irVA?e=r8rWgf
+
+### VNU Visit
+https://skkuge.notion.site/VNU-SKKU-Joint-Seminar-Jan-2024-d6d92d0e5c5f4745ba64cfb9db259ef9?pvs=4
