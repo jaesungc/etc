@@ -1,5 +1,8 @@
 ## 임시 자료
 
+### GE OT (2024.02.23)
+https://skkuge.notion.site/OT-2024S-abb4782960524ea1b19ec46aac37e838?pvs=4
+
 ### 여성경제학회 토론 자료 (2024.02.01)
 https://jasper-year-9a0.notion.site/2024-2-a0779cc2f4a444c9911e51b9ca85659b?pvs=4
 
