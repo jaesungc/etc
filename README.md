@@ -1,3 +1,6 @@
+### 대평고 특강
+- 학생 사전 질문 정리: https://jasper-year-9a0.notion.site/210ca1f84eff4eca8b49c37a15cf3eb4?pvs=4
+
 ### 한국경제의분석패널 토론
 https://jasper-year-9a0.notion.site/2024-3-d1c152ca9c3a4910abd2425a1a38104e?pvs=4
 
