@@ -1,3 +1,6 @@
+### IEJ Conference Discussion
+- Link: https://jasper-year-9a0.notion.site/IEJ-Conference-2024-9-59dfcd938d5341f9a0bdc44812b96a40?pvs=4
+
 ### KEIO대 학술대회 준비 관련 코멘트
 - 연구 배경
 - 연구 질문 
