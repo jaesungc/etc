@@ -1,8 +1,4 @@
-### 경제학공동학술대회 2025 (한남대) 토론
-- Link: https://jasper-year-9a0.notion.site/2025-190910d3ca70805aacf0efe539d146e5?pvs=4
-
-### IEJ Conference Discussion
-- Link: https://jasper-year-9a0.notion.site/IEJ-Conference-2024-9-59dfcd938d5341f9a0bdc44812b96a40?pvs=4
+### 토론
 
 ### KEIO대 학술대회 준비 관련 코멘트
 - 연구 배경
