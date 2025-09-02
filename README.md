@@ -11,6 +11,9 @@
 https://o365skku-my.sharepoint.com/:f:/g/personal/jaesungc_o365_skku_edu/EpNC619LvDREq_QmbOLMR94BqTTCkWEvRI_0oOxtZaR6EA?e=NHRFc6
 (Password Protected)
 
+### LE LM
+https://jasper-year-9a0.notion.site/Labor-Economics-Public-2025F-25c910d3ca7080248544d71a0220c968?source=copy_link
+
 ### 휴대용 모니터 보조 모니터로 사용하기 위한 프로그램 설치 파일
 https://skku0-my.sharepoint.com/:f:/g/personal/jaesungc_skku_edu/EqjLmipnUdtJmhLisck5U8AB6B53tAJECQbSur3Hzpc4RA?e=0vv1rG
 
