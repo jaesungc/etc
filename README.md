@@ -8,7 +8,7 @@
 - (연구 질문에 대한 대답으로서) 핵심 분석 결과, 그리고 시사점(정책 제언, 사회/경제 현상에 대한 이해에 도움이 되는 점)
 
 ### 발표 슬라이드 공유 폴더: 
-https://o365skku-my.sharepoint.com/:f:/g/personal/jaesungc_o365_skku_edu/EpNC619LvDREq_QmbOLMR94BqTTCkWEvRI_0oOxtZaR6EA?e=NHRFc6
+https://o365skku-my.sharepoint.com/:f:/g/personal/jaesungc_o365_skku_edu/EnAdVyz9DFlGtu3fy3GzgrQBtjrvG4AkDK66l86Kb5oSqg?e=xdUesh
 (Password Protected)
 
 ### LE LM
