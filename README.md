@@ -1,5 +1,7 @@
 ### 토론
-
+IEJ Conference (2025년 9월):
+- 토론문: https://jasper-year-9a0.notion.site/IEJ-Conference-2025-9-273910d3ca7080548340efdd30fb0f23?source=copy_link
+  
 ### KEIO대 학술대회 준비 관련 코멘트
 - 연구 배경
 - 연구 질문 
