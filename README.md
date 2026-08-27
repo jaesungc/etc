@@ -1,3 +1,6 @@
+### 자문회의 정책적 시사점
+https://jaesungc.notion.site/Presentation-3c98d9d1c45f80d990f7cf87a4bf8b97?source=copy_link
+
 ### KEIO대 학술대회 준비 관련 코멘트
 - 연구 배경
 - 연구 질문 
