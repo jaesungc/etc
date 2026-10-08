@@ -9,6 +9,10 @@
 https://o365skku-my.sharepoint.com/:f:/g/personal/jaesungc_o365_skku_edu/IgBwHVcs_QxZRrbt38txs4K0AWG6dIUkwkQ5_PXOBD_3e5w?e=bWru79
 (Password Protected)
 
+### 2026 Annual Meeting of Life Course Transitions in East Asia
+https://jaesungc.github.io/2026_Life_Course_Conference/
+https://www.dropbox.com/scl/fo/y16wsb42vso56ssw5w31i/AHYTAgxLPNqgR8DrVqQsX5k?rlkey=zjdfjkzxdym518iz79cchx2jp&st=7l8p4sxk&dl=0
+
 ### LE LM
 https://jasper-year-9a0.notion.site/Labor-Economics-Public-2025F-25c910d3ca7080248544d71a0220c968?source=copy_link
 
